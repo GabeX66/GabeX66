@@ -3,4 +3,3 @@
 - I’m currently learning basics.
 - How to reach me discord: gabex66#7316
 
-There is nothing Here right now. Thanks for checking!
